@@ -1,1 +1,0 @@
-# blakitny.github.io
